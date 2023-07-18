@@ -1,1 +1,2 @@
+![Screenshot (23)](https://github.com/Shivani7667/SECOND_TASK1/assets/138599058/7d4d393e-276c-41d1-902f-e6404938480d)
 # SECOND TASK GIVEN BY OCTANET
